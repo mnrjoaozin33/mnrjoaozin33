@@ -3,6 +3,6 @@
 🤟🏻​gosto de moto   
 ☯️​sou homem     
 3️⃣​sou gordo        
-![](https://media.tenor.com/kKIGtKJqxTwAAAAC/kevin-nascimento-os-4m.gif)
+![](<img width="368" height="368" alt="image" src="https://github.com/user-attachments/assets/eb301c3b-423a-4299-939d-62456a1345fb" />
 
 
