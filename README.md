@@ -3,4 +3,4 @@
 🤟🏻​gosto de moto   
 ☯️​sou homem     
 3️⃣​sou gordo        
-![](https://pin.it/20bmoOahM)
+![](https://pin.it/77Bsfibpo)
