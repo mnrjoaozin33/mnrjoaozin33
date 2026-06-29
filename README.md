@@ -3,7 +3,8 @@
 🤟🏻​gosto de moto   
 ☯️​sou homem     
 3️⃣​sou gordo        
-![](<"https://pin.it/1qUTDqrlt />
+![](<"![Uploading image.png…]()
+/>
  
 
 
